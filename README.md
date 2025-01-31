@@ -30,8 +30,8 @@ Osborne, M.R., Martinez de Pasqually: Treatise on the Reintegration of Beings (R
 
 Osborne, M.R., The de Grainville Manuscripts (Rose Circle Publications, 2024, 979-8892698832)
 
-Osborne, M.R., The Alchemy of William Blake: The Three Principles of the Divine Essence and 'An Allegory on the Spiritual Condition of Man' (Rose Circle Publications, 2024, ISBN: 979-8895043660)
-
 Osborne, M.R., The Threefold Anglican Ministry in the Writings of Thomas Cranmer, Richard Hooker and Jeremy Taylor (Whitestone Esoteric, 2024, ISBN: 979-8896609254)
 
 Osborne, M.R., William Laud (1573-1645) Writings the Church, Ministry and Sacraments (Whitestone Esoteric, 2024, ISBN: 979-8896606277)
+
+Osborne, M.R., Osborne, M.R., Martinez de Pasqually and the Office of the Holy Spirit (Rose Circle Publications, 2025, ISBN: 979-8897047161)
