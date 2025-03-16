@@ -12,6 +12,7 @@ Osborne is a Societas Rosicruciana in Anglia (SRIA) member and Director of Studi
 Osborne participates as a lecturer and guest speaker. He contributes to Watkins’ Mind, Body & Spirit Magazine, an internationally recognised publication of various subjects from contemporary spirituality to mysticism.
 
 Bibliography:
+
 Osborne, M.R., The Lessons of Lyons (Rose Circle Publications, 2021, ISBN: 979-8-8926986-4-1)
 
 Osborne, M.R., The Brazen Serpent: Chaos and Order (Rose Circle Publications, 2022, ISBN: 978-1-9479071-9-5)
