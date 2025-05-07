@@ -39,5 +39,6 @@ Osborne, M.R., William Laud (1573-1645) Writings the Church, Ministry and Sacram
 
 Osborne, M.R., Martinez de Pasqually and the Office of the Holy Spirit (Rose Circle Books, 2025, ISBN: 978-1-10684008-9-6)
 
+Osborne, M.R., The Rainbow: A Layman's Guide to Managing Spiritual Crisis with The Confessions of Jacon Boehme (Ninaki's Highlights, 2025, ISBN: 978-1-0684008-0-3)
 
 
